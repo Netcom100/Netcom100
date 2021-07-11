@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Netcom100
+- 👀 I’m interested in DISCORD bots
+- 🌱 I’m currently learning HTML & CSS
+- 📫 How to reach me {Legendry#9999 on DISCORD}
